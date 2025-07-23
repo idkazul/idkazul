@@ -1,1 +1,1 @@
-I like to code when I'm bored.
+i am blue 🔵
